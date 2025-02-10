@@ -1,12 +1,5 @@
-<picture>
- <img alt="a picture of anya musume from mouthwashing holding her fist up and cheering." src="[YOUR-DEFAULT-IMAGE](https://i.pinimg.com/736x/cc/87/c1/cc87c1c497d6b4b1a036eb3be9e095c1.jpg)">
-</picture>
-## hi my name is pawer and i am pro-ship/pro-fic. please dont ask me if im a darkshipper or comshipper or what ever because im a grown adult with wrist and back pain and i dont know that means. i use periods a lot and im a chronic drytexter.
-## obligatory dni:
-- im pro-para but pro/neutral contact people dni.
-- dont talk to me if you still unironically think that unconventional queer identities are somehow dangerous or "invalid" (whatever that means).
-- ^- especially if it has to do with lesboys i suck mad lesboy clit.
 
+## hi my name is pawer and i am pro-ship/pro-fic. please dont ask me if im a darkshipper or comshipper or what ever because im a grown adult with wrist and back pain and i dont know that means. i use periods a lot and im a chronic drytexter.
 <!--
 **shotsandshots/shotsandshots** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
