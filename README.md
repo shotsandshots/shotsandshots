@@ -1,5 +1,5 @@
 
-## hi my name is pawer and i am pro-ship/pro-fic. please dont ask me if im a darkshipper or comshipper or what ever because im a grown adult with wrist and back pain and i dont know what that means. i use periods a lot and im a chronic drytexter.
+## hi i am pro-ship/pro-fic. please dont ask me if im a darkshipper or comshipper or what ever because im a grown adult with wrist and back pain and i dont know what that means. i use periods a lot and im a chronic drytexter.
 <!--
 **shotsandshots/shotsandshots** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
